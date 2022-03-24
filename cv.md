@@ -1,4 +1,7 @@
 # Oleg Nykytenko
 
-## Contacts tel 38050-xxx-xx-xx
+## Contacts:
 
+## Phone 38050-xxx-xx-xx
+
+## Mail: kitgelo@gmai.com
